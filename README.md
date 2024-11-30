@@ -15,7 +15,7 @@ De plus, des **pratiques illégales** auraient lieu dans ce salon, notamment des
 
 ## Vous avez été victime ?
 Si vous avez subi des complications médicales, rencontré des problèmes liés à cet établissement ou si vous avez des informations utiles, merci de **contribuer au dossier en cours** en nous écrivant à :  
-📧 **signalement-beautyland@protonmail.com**  
+📧 **signalement-beautyland[a]protonmail[.]com**  
 
 ---
 
